@@ -1,1 +1,1 @@
-UNION DISCORD -> https://discord.gg/63yDBMh
+UNION DISCORD -> https://discord.gg/3MHfBGq [05 April 2018]
